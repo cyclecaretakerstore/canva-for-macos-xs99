@@ -1,4 +1,4 @@
-
+Get the ultimate Canva for macOS automation with Canva for macOS premium Automation: smart objects & masking tools. Featuring smart objects and masking tools, it's the best choice
 
 
 
